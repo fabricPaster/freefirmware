@@ -1,3 +1,6 @@
 click on any and click view raw
 Need firmware but dont wanna over spend use free firmware that will last u couple months on end if u wanna buy firmware for good price join our discord https://discord.gg/MEPcGRWCc3 if any problems with the firnware
-https://www.youtube.com/watch?v=oqaTSLO5ynI
+
+
+
+firmware flash tut https://www.youtube.com/watch?v=oqaTSLO5ynI
